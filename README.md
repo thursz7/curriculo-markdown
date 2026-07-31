@@ -12,6 +12,7 @@
 
 ## Objetivo
 Primeiro emprego - Menor Aprendiz
+
 ---
 
 ## Habilidades e Competências
