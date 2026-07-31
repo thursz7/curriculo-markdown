@@ -7,6 +7,8 @@
 **Endereço:** Residencial Real Park, Sumaré/SP  
 **Telefone:** (19) 99448-2002  
 **E-mail:** [arthur.aurelianor@gmail.com](mailto:arthur.aurelianor@gmail.com)  
+**LindedIn** [https://www.linkedin.com/in/thursz7/]
+**GitHub** [https://github.com/thursz7]
 
 ---
 
